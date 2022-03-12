@@ -1,7 +1,5 @@
 ```
-
-  > DISCORD: heroenfan66#7507.
-  > sexy man
-  > glaivester
-  
+  discord: daddyimstuckuwu#7507
+  sex: had
+  bitches: none
 ```
